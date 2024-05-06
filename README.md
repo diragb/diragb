@@ -1,3 +1,3 @@
-# hey look
+# engineer
 
-<a href="https://i.imgflip.com/2jnjja.jpg">im a narcissist too</a>
+nothing fancy or shiny. please feel free to check out my projects below. contact me via email at work@diragb.dev.
